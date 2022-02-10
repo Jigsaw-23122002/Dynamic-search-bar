@@ -5,3 +5,7 @@
 <br>
 
 ![](https://github.com/Jigsaw-23122002/PHOTOS/blob/main/Untitled%20design%20(1).gif)
+
+<br>
+
+![](https://github.com/Jigsaw-23122002/PHOTOS/blob/main/Screenshot%20(479).png)
